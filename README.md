@@ -1,2 +1,1 @@
-# szakza.github.io
-TOSWBE
+DONOT ABUSE THIS SHIT
